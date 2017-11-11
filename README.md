@@ -1,2 +1,3 @@
-# DisME
-Read To Proceed
+# Welcome
+Aussie PVMers + Raiders FTW
+General Voiceover or text chat Play HARD or JustLogout
