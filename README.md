@@ -1,3 +1,4 @@
 # Welcome
 Aussie PVMers + Raiders FTW
-General Voiceover or text chat Play HARD or JustLogout
+General Voiceover or text chat 
+Play HARD or Just Logout
